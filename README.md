@@ -12,7 +12,7 @@
 
 **Demo video:** https://youtu.be/V2-x-J1Galg
 
-A demonstration video will be linked here after recording and uploading.
+watch this demonstration video
 
 ## Overview
 
